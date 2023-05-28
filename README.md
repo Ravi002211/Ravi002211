@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **puskarravi002211@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1An7lLZMa5-Ksh-tc_ZxaHUBQpowJ54xu/view?usp=share_link]([https://drive.google.com/file/d/1An7lLZMa5-Ksh-tc_ZxaHUBQpowJ54xu/view?usp=share_link](https://drive.google.com/file/d/1eqZebBdnmlNARhyl0MgPf3jNReoa3Kbf/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1An7lLZMa5-Ksh-tc_ZxaHUBQpowJ54xu/view?usp=share_link](https://drive.google.com/file/d/1eqZebBdnmlNARhyl0MgPf3jNReoa3Kbf/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
